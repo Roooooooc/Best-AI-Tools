@@ -1,4 +1,5 @@
 **NSFW**
+
 https://nudeai.beauty
 AI-powered site for generating explicit imagery, focusing on adult content.
 
@@ -23,7 +24,10 @@ AI chatbot designed for engaging in explicit and adult conversations.
 https://nsfwai.world
 Hub for AI-generated NSFW content across various themes and genres.
 
+
+
 **SFW**
+
 https://aitoolsdirectory.online
 Directory of AI tools for various applications, curated for easy access.
 
