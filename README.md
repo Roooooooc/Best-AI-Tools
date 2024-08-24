@@ -1,4 +1,4 @@
-**NSFW**
+## **NSFW**
 
 https://nudeai.beauty
 AI-powered site for generating explicit imagery, focusing on adult content.
@@ -25,8 +25,7 @@ https://nsfwai.world
 Hub for AI-generated NSFW content across various themes and genres.
 
 
-
-**SFW**
+## **SFW**
 
 https://aitoolsdirectory.online
 Directory of AI tools for various applications, curated for easy access.
