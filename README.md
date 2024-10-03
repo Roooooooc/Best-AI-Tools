@@ -71,3 +71,21 @@ A site for generating fun and playful text content using AI.
 
 https://aitextgenerator.live
 Create text-based content using AI with this simple and accessible tool.
+
+https://blackmythwukong.buzz Guides, Boss Strategies & Walkthrough
+
+https://booksummary.wiki Best Literature Study Guides & Book Summaries
+
+https://chatgptgratuit.chat ChatGPT Gratuit - Chat GPT en Français | Sans Inscription
+
+https://chatgptgratuito.online/ Chat GPT Gratuito - melhor ChatGPT 4, em português, online
+
+https://chatgtponline.com/ Chat GTP - Gratis GTP 4 Chat en línea, El mejor, por OpenAI
+
+https://gauthai.pro/ Gauth AI - Your Best AI Homework Helper & Math Solver, Free
+
+https://bestrecipe.pro/ Best Recipe - Your Ultimate Recipes Hub for Yum & Delicious
+
+https://cookie-clicker-unblocked.pro/ Cookie Clicker Unblocked | Free Games, No Login
+
+https://freakyfont.org/ Freaky Font Generator | Copy-Paste Funny & Fancy Meme Text
